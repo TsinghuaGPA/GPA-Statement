@@ -16,6 +16,8 @@
 
 [小五爷园 回应学分绩改革 | 专访清华大学校长助理、副教务长彭刚](https://mp.weixin.qq.com/s/lv6FbLFCrJAmxf23sZf-0w)
 
+[当我们在谈论GPA时，我们在谈论什么](https://mp.weixin.qq.com/s/IYcpz8oKZ5Y2gOwl5rWEBQ)
+
 
 [清华学分绩改革无路可走](https://mp.weixin.qq.com/s?__biz=MzIzMDc0MzE3MA==&mid=2247483672&idx=1&sn=25789cc754cbaa789cdb2336dce5cd4b&key=07b41b11cd2ea3cfa0772bbce194703cfc35be9060de72e37be10f02c28b18864ec7e76a48f08293453f5a5aeb901b82bae8a78a05c1b33c4a34d94279308814da17a4fe9ec42a783d4fe277fe1bff52&ascene=1&uin=MjUzMTU2MjMwNQ%3D%3D&devicetype=Windows+10&version=62060739&lang=en&pass_ticket=NEOm4eJ7W9EW%2Fd0SC5FM16ue7AN2p5kfm8u%2FKhHHIin9JD1qduZdfwop2jA4PmTz)
 
