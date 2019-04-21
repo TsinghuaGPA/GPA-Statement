@@ -4,8 +4,10 @@
 ## 相关链接
 
 **知乎问答**
-[如何看待清华大学清新时报文章“深度｜谁动了我的GPA”一小时后被删除?](https://www.zhihu.com/question/320296931
-[如何评价清华大学 清华小五爷园 公众号的最新文章《回应学分绩改革》？](https://www.zhihu.com/question/320861694
+
+
+[如何看待清华大学清新时报文章“深度｜谁动了我的GPA”一小时后被删除?](https://www.zhihu.com/question/320296931)
+[如何评价清华大学 清华小五爷园 公众号的最新文章《回应学分绩改革》？](https://www.zhihu.com/question/320861694)
 
 **微信推送**
 [小五爷园 回应学分绩改革 | 专访清华大学校长助理、副教务长彭刚](https://mp.weixin.qq.com/s/lv6FbLFCrJAmxf23sZf-0w)
